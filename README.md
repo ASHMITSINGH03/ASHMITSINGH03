@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web designing And Problem Solving
 - 🌱 I’m currently learning Machine learning
 - 💞️ I’m looking to collaborate on in Tech industry and Industry experts.
-- 📫 How to reach me - This is my email (ashmitsingh1310@gmail.com), This is my linkedin (https://www.linkedin.com/in/manas-saxena-3a3167294)
+- 📫 How to reach me - This is my email (ashmitsingh1310@gmail.com), This is my linkedin (https://www.linkedin.com/in/ashmitsingh13)
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: Being a developer or engineeer, I can work even in morning too! :)
 
